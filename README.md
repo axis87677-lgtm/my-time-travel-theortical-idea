@@ -21,3 +21,9 @@ oh forgot to say think of reality as recursive past and future and present all h
 we know from Einstein's relativity that reality is relative to the observer well if the observer is inside a closed system of space and could change global or tune (if its even possible to change energy Hamiltonian operator) could go to the future or past changing the energy operator(just reserving and forwarding the state of the universe then actually changing time as times just emergent) for reality so space stays the same  normal for the observer people in his past are still living in 2026 just relative to the observer he has gone to the future or past
 
 cause ufos are being disclosed as real by goes showing this space bubble so we got the bubble part if there is a resonance way to the global unitary then they could time travel given to move ftl it has to be non local so cant be plasma shit (as that's still local lol conventional rules apply) like u see silly tik tokers using chatgpt. say anyway I'm rambling 👀 :)
+
+
+
+
+
+extra thought on the grandfather paradox if its recursive then the paradox isn't an issue the change is relative possibility what i mean is say you got old mate jim and you go back in time to idk make jim bald as your jealous of his hair you go back but make him bald the relative jim is gonna be bald (as possibilities would just be nested recursion so a change happens but meanwhile the non bald jim still continuing relative to him no paradox at all like it splits or you do. call it recursive branching of possibilities.
